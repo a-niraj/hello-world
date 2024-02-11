@@ -1,1 +1,1 @@
-L get good
+L get good, then get a bit better
