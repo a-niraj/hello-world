@@ -1,1 +1,1 @@
-L get good, then get a bit better
+Just testing out Git
